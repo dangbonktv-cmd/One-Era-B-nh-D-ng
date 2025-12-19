@@ -6,4 +6,6 @@ ONE ERA được định vị như một “khu đô thị tích hợp toàn di�
 Dự án được truyền thông là “Thành phố vạn tiềm năng” — không đơn thuần là một khu nhà ở, mà là một đô thị hiện đại, đồng bộ, đáp ứng mọi nhu cầu sống: công nghệ, thiên nhiên, cộng đồng và tri thức quốc tế.
 
 Sau đây là phân tích chi tiết về: vị trí & kết nối, quy mô & quy hoạch, sản phẩm & loại hình, tiện ích & hạ tầng, pháp lý & tiến độ, tiềm năng & đánh giá.
-👉 Xem thêm chi tiết dự án tại: [https://www.theoneworldera.com/](url) [https://www.meehome.com.vn/one-era-binh-duong-the-one-world/](url)
+👉 Xem thêm chi tiết dự án tại: [https://www.theoneworldera.com/](url)
+
+[https://www.meehome.com.vn/one-era-binh-duong-the-one-world/](url)
