@@ -8,4 +8,4 @@ Dự án được truyền thông là “Thành phố vạn tiềm năng” — 
 Sau đây là phân tích chi tiết về: vị trí & kết nối, quy mô & quy hoạch, sản phẩm & loại hình, tiện ích & hạ tầng, pháp lý & tiến độ, tiềm năng & đánh giá.
 👉 Xem thêm chi tiết dự án tại: [https://www.theoneworldera.com/](url)
 
-[https://www.meehome.com.vn/one-era-binh-duong-the-one-world/](url)
+https://www.meehome.com.vn/one-era-binh-duong-the-one-world/
